@@ -1,0 +1,1 @@
+# IH_TYPO_ASSETS
